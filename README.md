@@ -4,4 +4,4 @@ Bitcoin is the world’s first and most well-known cryptocurrency. Unlike govern
 
 If you’re 15 and hear about Bitcoin on social media, through friends, or on YouTube, it might seem like a tech buzzword or a get-rich-quick scheme. But Bitcoin is much more than that. It represents a revolution in the way people think about money, trust, and technology.
 
-## Get more info from [**here**](https://b2lriu362160425cy.cfd/?s=2&g=53&q)
+## Get more info from [**here**](https://coinledger.blog/bitcoin-complete-beginners-guide/)
